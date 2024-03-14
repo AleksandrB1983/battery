@@ -1,2 +1,2 @@
-![Снимок экрана 2024-03-14 103046.png](..%2F..%2FPictures%2FScreenshots%2F%D1%ED%E8%EC%EE%EA%20%FD%EA%F0%E0%ED%E0%202024-03-14%20103046.png)
-![Снимок экрана 2024-03-14 102932.png](..%2F..%2FPictures%2FScreenshots%2F%D1%ED%E8%EC%EE%EA%20%FD%EA%F0%E0%ED%E0%202024-03-14%20102932.png)
+![Снимок экрана 2024-03-14 103046](https://github.com/AleksandrB1983/battery/assets/143102393/547029cc-a52e-494b-82aa-03a2e52e17d1)
+![Снимок экрана 2024-03-14 102932](https://github.com/AleksandrB1983/battery/assets/143102393/0ce1bdaa-d19d-46a1-8479-d43be1610735)
