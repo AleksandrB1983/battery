@@ -1,0 +1,2 @@
+![Снимок экрана 2024-03-14 103046.png](..%2F..%2FPictures%2FScreenshots%2F%D1%ED%E8%EC%EE%EA%20%FD%EA%F0%E0%ED%E0%202024-03-14%20103046.png)
+![Снимок экрана 2024-03-14 102932.png](..%2F..%2FPictures%2FScreenshots%2F%D1%ED%E8%EC%EE%EA%20%FD%EA%F0%E0%ED%E0%202024-03-14%20102932.png)
